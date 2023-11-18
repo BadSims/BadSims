@@ -1,0 +1,2 @@
+- 👋 bonjour, je suis @BadSims
+- 👀 je suis intéréssaent par le codage de bot
