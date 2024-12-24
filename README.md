@@ -1,6 +1,6 @@
 
 ---
-![Bad-BANNER](https://i.pinimg.com/originals/23/49/2e/23492efc887d99eb14216ce9b837f5b5.gif)
+![Bad-BANNER](https://cdn.discordapp.com/attachments/1251609957141315594/1321109322427666513/wat.gif?ex=676c0a6f&is=676ab8ef&hm=729beec1e4931c28b7ea5f332c675ac2c9cc1001694202f4011ec57bb60ca22d&)
 
 ## 🚀 My Discord:
 [![Discord Presence](https://lanyard.cnrad.dev/api/1196581154145448038)](https://discord.com/users/1196581154145448038)
